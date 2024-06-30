@@ -9,4 +9,4 @@ I'm a student from Belarus, I'm studying in Poland at a technical school now. I 
 
 ---
 
-My English level is A2, I took language courses in Malta. I'm learning and practicing my English with the individual teacher now. 
+My English level is A2-B1, I took language courses in Malta. I'm learning and practicing my English with the individual teacher now. 
